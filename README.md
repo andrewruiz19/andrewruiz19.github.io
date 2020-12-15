@@ -1,1 +1,0 @@
-# andrewruiz19.github.io
